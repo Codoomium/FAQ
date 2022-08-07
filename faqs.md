@@ -1,4 +1,0 @@
- - What if my TV explodes
- - - well then the shit explodes, what can ya do?
- - My house burnt in pieces, what do you recommend?
- - - dm me on my [telegramizm](https://docs.github.com/en/repositories/managing-your-repositorys-settings-and-features/customizing-your-repository/licensing-a-repository)
